@@ -10,4 +10,4 @@ that would be tight. Machina Sperans will never be licensed, but will have offic
 verify the legitimacy, or rather the specific form of illegitimacy, of said releases.
 thanks for reading!
 with love and solidarity signed, your friend,
-- Jojo 'Cryin' Eyes' Crine, aka n00jo
+- Jojo 'Cryin' Eyes' Crine, aka n00jo aka thuruht
